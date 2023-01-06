@@ -1,0 +1,1 @@
+# projekt-seminar-me-trpo
